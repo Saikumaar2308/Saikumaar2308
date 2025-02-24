@@ -1,5 +1,4 @@
 
-**Saikumaar2308/Saikumaar2308*
 
 Here are some ideas to get you started:
 
